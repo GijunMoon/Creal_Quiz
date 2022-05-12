@@ -1,5 +1,7 @@
 # 씨리얼!!
 
+https://www.notion.so/gijun/eda4b0fa50834fb89f2052e33d1008a0 여기가서 보면 더 
+
 May 13, 2022 
 
 ### 연산자에 관한 부가 설명
