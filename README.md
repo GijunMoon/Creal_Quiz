@@ -4,6 +4,8 @@ https://www.notion.so/gijun/eda4b0fa50834fb89f2052e33d1008a0 여기가서 보면
 
 https://gijun.notion.site/eda4b0fa50834fb89f2052e33d1008a0
 
+https://gijun.notion.site/220520-96cc5b68432340c1b376c4cb20be5711
+
 May 13, 2022 
 
 ### 연산자에 관한 부가 설명
